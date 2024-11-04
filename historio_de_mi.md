@@ -2,4 +2,4 @@
 
 ## Como estan 
 
-Que hacen 
+Hola soy stamatio y estoy estudiando ia
